@@ -1,0 +1,1 @@
+BẤT PHƯƠNG TRÌNH, HỆ BẤT PHƯƠNG TRÌNH BẬC NHẤT 2 ẨN, BÀI TOÁN TỐI ƯU
